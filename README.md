@@ -1,2 +1,2 @@
 # Trip-to-Tibet
-My personal blogs about the trip to Tibet in June 2015
+My first personal website about the 2015 trip to Tibet from June 18th to June 28th
